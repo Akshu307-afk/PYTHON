@@ -2,7 +2,7 @@ Akshobhya Kadiri
 ---
 
 **Author:** Akshobhya Kadiri
-**Email:** [kakshobhya99441@gmail.com](mailto:kakshobhya99441@gmail.com)
+**Email:** [kakshobhya99441@gmail.com](mailto:akshobhya94@outlook.com)
 
 ---
 
@@ -11,7 +11,7 @@ Akshobhya Kadiri
 **Instructor:** *Maduri Akka*
 
 **Institution:** Purnapramati Gurukula, Bengaluru
-**Date:** April 2025
+**Date:** October 2026
 
 ---
 
