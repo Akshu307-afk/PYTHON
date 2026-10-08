@@ -2,7 +2,7 @@ Akshobhya Kadiri
 ---
 
 **Author:** Akshobhya Kadiri
-**Email:** [kakshobhya99441@gmail.com](mailto:akshobhya94@outlook.com)
+**Email:** [akshobhya94@outlook.com](mailto:akshobhya94@outlook.com)
 
 ---
 
